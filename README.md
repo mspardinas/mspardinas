@@ -1,4 +1,4 @@
-[OIIAIOIIIAI]([https://pages.github.com/](https://youtu.be/I68Ehtbu84M))
+[OIIAIOIIIAI]([https://youtu.be/I68Ehtbu84M])
 
 <!---
 mspardinas/mspardinas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
